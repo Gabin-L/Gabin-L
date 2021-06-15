@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Gabin-L
+- 👋 Hi, I'm Gabin comes from France and like self-learning and art.
 - 👀 I’m interested in CAO and concept devlopment.
 - 🌱 I’m currently learning Fusion 360 and working at college actualy.
 - 💞️ I’m looking to collaborate on differents projects if u needed CAO Solidwork, Fusion 360 and work on 3D prints too.
